@@ -1,0 +1,8 @@
+![Screenshot 2023-12-02 101333](https://github.com/320126510044/gym_visuals/assets/112743038/71602d7b-32f8-4ff9-bd22-39c0326700fd)
+![Screenshot 2023-12-02 101346](https://github.com/320126510044/gym_visuals/assets/112743038/92c73c4d-6f3c-4411-9251-90d259e31025)
+![Screenshot 2023-12-02 101408](https://github.com/320126510044/gym_visuals/assets/112743038/d4759ad1-3b17-4cd2-80e4-fd7e48dd7dc0)
+![Screenshot 2023-12-02 101419](https://github.com/320126510044/gym_visuals/assets/112743038/8eefddc3-fe5e-4181-8b71-fac91fb7a42e)
+![Screenshot 2023-12-02 101432](https://github.com/320126510044/gym_visuals/assets/112743038/c8d7f6ee-4290-4e3a-88c7-5d43fa1609cc)
+![Screenshot 2023-12-02 101444](https://github.com/320126510044/gym_visuals/assets/112743038/c54971f7-1e5c-4c5e-888f-1dc9401aef31)
+![Screenshot 2023-12-02 101534](https://github.com/320126510044/gym_visuals/assets/112743038/e7ff26de-8f93-4cd6-b66d-c4d515d389f6)
+![Screenshot 2023-12-02 101518](https://github.com/320126510044/gym_visuals/assets/112743038/e345aaaf-7867-4ff1-b9f4-425c8f8a4331)
